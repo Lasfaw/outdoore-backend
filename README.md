@@ -1,6 +1,6 @@
 # outdoore
 
-## Team Name:
+## Team Name: Group 7
  
 <br/>
 
